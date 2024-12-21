@@ -1,6 +1,6 @@
 # CodeAlpha-Internship
 Cyber Security Internship @ CodeAlpha December 2024 
-Offer Letter - k koushik reddy.pdf[k koushik reddy.pdf](https://github.com/user-attachments/files/18218781/k.koushik.reddy.pdf)
+Offer Letter - [k koushik reddy.pdf](https://github.com/user-attachments/files/18218781/k.koushik.reddy.pdf)
 
 
 
